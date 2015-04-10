@@ -15,4 +15,4 @@ Screenshot. Looks old here, but it actually looks good even on Lollipop.
 
 ![http://lh5.ggpht.com/_ODdyLCCXPpQ/TKsFBMSlhdI/AAAAAAAAu6o/vqpGqyCnywY/s800/r230-ambilwarna.png](http://lh5.ggpht.com/_ODdyLCCXPpQ/TKsFBMSlhdI/AAAAAAAAu6o/vqpGqyCnywY/s800/r230-ambilwarna.png)
 
-![http://1drv.ms/1aPJLjf](http://1drv.ms/1aPJLjf)
+http://1drv.ms/1aPJLjf
